@@ -1,1 +1,1 @@
-![ITYSL](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExODQ1ZmR2Yjc3bWg3YjA2czYwN3l4ZDA2emNjaHEwamNoY3Z0NWgzZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/CJ3PwrhNDOqtuES0ZY/giphy.gif)
+![idk](https://github.com/user-attachments/assets/d378fe7a-7393-42e5-baab-d7321d63e52c)
